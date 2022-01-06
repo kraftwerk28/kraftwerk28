@@ -1,4 +1,3 @@
-# Welcome!
-### You appear to be a ${viewcount}${suffix} visitor.
+#### Welcome, 237th stranger!
 
 <img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
