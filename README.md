@@ -1,5 +1,5 @@
-#### Welcome, 36th stranger!
-
-<img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
+#### Welcome, 37th stranger!
 
 ###### <sup>P.S. counting started approximately in 10.01.21</sup>
+
+<img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
