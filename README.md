@@ -1,5 +1,5 @@
-#### Welcome, 475th stranger!
+#### Welcome, 476th stranger!
 
-###### <sup>P.S. counting started approximately in 10.01.21</sup>
+###### <sup>P.S. counting started approximately in 10.01.22</sup>
 
 <img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
