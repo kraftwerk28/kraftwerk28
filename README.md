@@ -1,4 +1,4 @@
-#### Welcome, 572nd stranger!
+#### Welcome, 573rd stranger!
 
 ###### <sup>P.S. counting started approximately in 10.01.22</sup>
 
