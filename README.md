@@ -1,3 +1,3 @@
-#### Welcome, 960th stranger!
+#### Welcome, 961st stranger!
 
 <img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
