@@ -1,3 +1,3 @@
-#### Welcome, 1939th stranger!
+#### Welcome, 1940th stranger!
 
 <img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
