@@ -1,3 +1,3 @@
-#### Welcome, 1971st stranger!
+#### Welcome, 1972nd stranger!
 
 <img src="https://kraftwerk28.pp.ua/vcnt.png"></img>
